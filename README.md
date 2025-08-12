@@ -32,5 +32,5 @@ B.Sc. BZCS graduate from Telangana, India
 
 ## 📞 Contact
 - **Email:** macharakesh00@gmail.com
-- **LinkedIn:** [www.linkedin.com/in/rakesh-macha-110794374]
+- **LinkedIn:** www.linkedin.com/in/rakesh-macha-110794374
 - **Location:** Hyderabad, Telangana
