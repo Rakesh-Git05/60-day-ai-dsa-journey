@@ -31,6 +31,6 @@ B.Sc. BZCS graduate from Telangana, India
 **Phase 2:** Google, Microsoft, Amazon, Meta
 
 ## 📞 Contact
-- **Email:** [your.email@gmail.com]
-- **LinkedIn:** [Your LinkedIn Profile]
+- **Email:** macharakesh00@gmail.com
+- **LinkedIn:** [www.linkedin.com/in/rakesh-macha-110794374]
 - **Location:** Hyderabad, Telangana
